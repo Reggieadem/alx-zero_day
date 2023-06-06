@@ -1,1 +1,1 @@
-my first readme
+Jesus is the way
